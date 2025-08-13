@@ -26,4 +26,4 @@ Feel free to connect with me for collaboration or hiring opportunities.
 
  
 
-Designed and developed with ❤️ by **Divyanshu Kummar **
+Designed and developed with ❤️ by **Divyanshu Kumar **
